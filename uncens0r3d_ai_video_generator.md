@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4fdDCyX)
+[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -83,7 +83,7 @@ Most AI video generators have limitations that hold you back:
 
 <div align="center">
 
-[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4fdDCyX)
+[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -174,7 +174,7 @@ Most AI video generators have limitations that hold you back:
 
 <div align="center">
 
-[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4fdDCyX)
+[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Download-FF6B9D?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -259,7 +259,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Get%20It%20Here-FF6B9D?style=for-the-badge&logo=github)](https://bit.ly/4fdDCyX)
+[![Download Uncens0r3d AI Video Generator](https://img.shields.io/badge/Get%20It%20Here-FF6B9D?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
