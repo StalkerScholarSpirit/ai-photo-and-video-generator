@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/44pSGo8)
+[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -160,7 +160,7 @@
 
 <div align="center">
 
-[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/44pSGo8)
+[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Download-FF8C00?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -246,7 +246,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://bit.ly/44pSGo8)
+[![Download NoLimit Uncensored AI Photo Generator](https://img.shields.io/badge/Get%20It%20Here-FF8C00?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
