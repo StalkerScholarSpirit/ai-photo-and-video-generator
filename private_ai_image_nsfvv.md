@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/44lCofY)
+[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -81,7 +81,7 @@ Most AI image generators have strict content filters that limit your creativity:
 
 <div align="center">
 
-[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/44lCofY)
+[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -172,7 +172,7 @@ Most AI image generators have strict content filters that limit your creativity:
 
 <div align="center">
 
-[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://bit.ly/44lCofY)
+[![Download Private AI Image NSFW](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
@@ -257,7 +257,7 @@ Yes – the package includes a detailed PDF guide with screenshots.
 
 <div align="center">
 
-[![Download Private AI Image NSFW](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://bit.ly/44lCofY)
+[![Download Private AI Image NSFW](https://img.shields.io/badge/Get%20It%20Here-00FF99?style=for-the-badge&logo=github)](https://share.google/2Y5MF9bN3gdcM83NV)
 
 </div>
 
